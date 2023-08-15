@@ -10,3 +10,5 @@ Delivery under 24 hours!!!
 Contact:
 e-mail: cristian.vsl@outlook.com
 Response: Maximum 4 Hours.
+
+One example of a online mining pool is: http://satoxcoin.com
